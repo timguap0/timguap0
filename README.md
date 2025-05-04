@@ -1,4 +1,4 @@
-HEY , HERE IS Amanda's number (623) 2 four 6-2five22- LOL HMU 
+
 
 👋 Hi, I’m @timguap0
 - 👀 I’m interested in ...
